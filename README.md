@@ -4,6 +4,7 @@
 - 📫 How to reach me. 
 - email: wasiurrahaman247@gmail.com 
 - linkedin: https://www.linkedin.com/in/wasi-ur-rahman-2686a5183/
+- facebook: https://www.facebook.com/remo.remo.7334/
 
 
 <!---
